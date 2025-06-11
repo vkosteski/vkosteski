@@ -1,4 +1,4 @@
-<img src="![1000057067](https://github.com/user-attachments/assets/7c20fd96-c958-4c4d-8cec-2c1c5e0af45c)
+"![1000057067](https://github.com/user-attachments/assets/7c20fd96-c958-4c4d-8cec-2c1c5e0af45c)
 width="100%" />
 
 # 👋 Hi, I'm Viktor Kosteski
