@@ -1,5 +1,4 @@
-"![1000057067](https://github.com/user-attachments/assets/7c20fd96-c958-4c4d-8cec-2c1c5e0af45c)
-width="100%" />
+![1000057067](https://github.com/user-attachments/assets/7c20fd96-c958-4c4d-8cec-2c1c5e0af45c) />
 
 # 👋 Hi, I'm Viktor Kosteski
 
